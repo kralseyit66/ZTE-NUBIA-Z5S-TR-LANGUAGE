@@ -1,0 +1,4 @@
+ZTE-NUBIA-Z5S-TR-LANGUAGE
+=========================
+
+ZTE NUBIA Z5S TR LANGUAGE
